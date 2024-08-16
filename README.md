@@ -11,6 +11,8 @@ você pode entrar em contato comigo 📧
 
 antoniowilton@prof.educacao.sp.gov.br
 
+willwand@gmail.com
+
 [x](https://x.com/home)
 
 [blog do wilton](https://wilton01.blogspot.com/)
